@@ -3,4 +3,5 @@
 We are together forever)
 
 I love you)))
-!(Error)[we.jpg]
+
+Потом другую картинку найду))
